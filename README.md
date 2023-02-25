@@ -1,2 +1,2 @@
 My first readme
-Exciting feeling to be coding
+Coding is bae
