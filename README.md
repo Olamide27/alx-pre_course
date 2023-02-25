@@ -1,2 +1,1 @@
-My first readme
-Coding is bae
+My first readme is really hard but pulling through
