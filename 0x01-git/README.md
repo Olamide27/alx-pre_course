@@ -1,1 +1,1 @@
-it is done
+it is done the Lord has said so 
